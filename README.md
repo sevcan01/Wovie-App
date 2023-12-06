@@ -3,5 +3,3 @@
 
 
 
-https://github.com/sevcan01/Wovie-App/assets/127621405/1e32a8a8-baf8-4891-868c-4a70dd7d0b37
-
